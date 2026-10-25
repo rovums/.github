@@ -1,4 +1,4 @@
-\*Kid: Dad, Who is team behind ROV UMS 2027?\*  
+*Kid : Dad, Who is team behind ROV UMS?*  
 
-\*Dad:\*  
-
+*Dad:*  
+![GOAT](assets/goat-sullivan.gif)
